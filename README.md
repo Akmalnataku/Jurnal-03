@@ -1,1 +1,1 @@
-# Jurnal-03
+6706202090 Akmal Natakusuma
